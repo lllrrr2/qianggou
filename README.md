@@ -2,7 +2,7 @@
    
 下载地址：[http://baohui.xin/qg](http://baohui.xin/qg)  
    
-抢购源码QQ群：133520190  
+抢购QQ群：133520190  
    
    
    
