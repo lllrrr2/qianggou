@@ -4,7 +4,7 @@
    
 抢购QQ群：133520190  
 \
-\
+
   
 ![image](https://github.com/yunyunv/qianggou/blob/main/1.png)  
 ![image](https://github.com/yunyunv/qianggou/blob/main/2.png)
