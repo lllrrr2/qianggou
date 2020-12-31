@@ -2,7 +2,7 @@
    
 下载地址：[https://www.lanzoui.com/b01br9o6j](https://www.lanzoui.com/b01br9o6j)  
    
-抢购QQ群：133520190  
+抢购QQ群：307966172  
 微信：baohuikf  
 验证：抢购助手  
   
