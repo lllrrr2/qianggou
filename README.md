@@ -5,8 +5,8 @@ QQ群号：636677598
 或者直接点击链接加群：[https://jq.qq.com/?_wv=1027&k=8rmAofkO](https://jq.qq.com/?_wv=1027&k=8rmAofkO)  
   
 微信：baohuikf  
-加微信好友，邀请加入微信群  
-验证：抢购助手  
+扫描微信二维码添加好友，邀请加入微信群，验证：抢购助手  
+![image](https://github.com/yunyunv/qianggou/blob/main/wx.jpg)  
   
   
   
